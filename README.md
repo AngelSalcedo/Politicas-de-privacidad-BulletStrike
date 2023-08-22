@@ -1,2 +1,2 @@
 # Politicas-de-privacidad-BulletStrike
-Politicas de privavidad Bullet Strivke
+Politicas de privavidad Bullet Strike
